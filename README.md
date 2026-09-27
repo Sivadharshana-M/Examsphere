@@ -1,0 +1,1 @@
+Examsphere AI is the total examinationation system for visually disabled students.it is a positive effort to make visually impaired students to make them write exams independently without tha anyone's assistance
